@@ -1,1 +1,2 @@
-project detais
+edhe antha project gurwenche cheputundhe 
+
